@@ -2,7 +2,7 @@
 
 ## Introduction
 
-Congratulations George for taking this step towards better health - your journey begins today. Your Wellness Plan has been prepared based on your food sensitivity test results. Please note your reference number. We will need this number if you contact our office with any questions.
+Congratulations, for taking this step towards better health - your journey begins today. Your Wellness Plan has been prepared based on your food sensitivity test results. Please note your reference number. We will need this number if you contact our office with any questions.
 
 ***Defining Food Sensitivity***
 
